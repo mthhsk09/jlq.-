@@ -25,6 +25,9 @@
     ౨ৎ PLEASE TALK TO ME I AM SO LONELY [ c+h allowed ]
 
 
+	౨ৎ 𝙰𝚏𝚔 𝚘𝚏𝚝𝚎𝚗 / 𝚠𝟸𝚒
+
+	
 <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/3524e4d3-d4b5-49c8-b7de-f4c6b0a1d37c" />
 
 
