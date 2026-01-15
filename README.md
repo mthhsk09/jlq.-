@@ -13,7 +13,7 @@
     ౨ৎ You can find me on tiktok, pinterest, youtube, facebook and discord
 
 
-    ౨ৎ This github account is using for ponytown and discord only 
+    ౨ৎ This github account is used for ponytown and discord only 
 
 
     ౨ৎ I don't like rude ppl/ragebaiter/.. 
