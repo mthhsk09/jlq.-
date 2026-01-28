@@ -1,10 +1,7 @@
-# jlq.-
-
 <img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/7a61af48-03d4-4dfb-9345-6824d8a95991" />
 
 
 𝙼𝚢 𝚊𝚛𝚝𝚠𝚘𝚛𝚔 || 𝙳𝙾 𝙽𝙾𝚃 𝚂𝚃𝙴𝙰𝙻 𝙾𝚁 𝚁𝙴-𝚄𝙿
-
 
 
 <img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/642b1c5e-a9bb-4bcd-9294-00446e9301de" />
